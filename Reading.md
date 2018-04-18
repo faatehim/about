@@ -6,6 +6,8 @@
 * Hatching Twitter: A True Story of Money, Power, Friendship, and Betrayal
 * Bitcoin Whitepaper
 * Ethereum Whitepaper
+* The Autobiography of Malcolm X: As Told to Alex Haley
+* World After Capital
 
 ## Present
 
