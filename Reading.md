@@ -13,5 +13,9 @@
 
 ## Future
 
+The Bitcoin Standard
+The Everything Store
+
 
 [Medium Articles Liked](https://medium.com/@faatehm/has-recommended)
+[Pocket](https://getpocket.com/@faatehmohammad)
