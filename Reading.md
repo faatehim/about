@@ -8,14 +8,16 @@
 * Ethereum Whitepaper
 * The Autobiography of Malcolm X: As Told to Alex Haley
 * World After Capital
+* The Bitcoin Standard
+* Hackers and Painters
 
 ## Present
-
+* Sapiens
 ## Future
 
-The Bitcoin Standard
-The Everything Store
-
+* The Everything Store
+* Meditations
 
 [Medium Articles Liked](https://medium.com/@faatehm/has-recommended)
+
 [Pocket](https://getpocket.com/@faatehmohammad)
